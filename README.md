@@ -8,5 +8,7 @@ Oi, meu nome é Lívia, tenho 16 anos e estudo numa escola pública 🏫
 -Espero conseguir concluir o curso e ter mais conhecimento com isso \(>-<)/
 
 ## Caso queria entrar em contato comigo🌼:>
+
 00001120968604sp@al.educacao.sp.gov.br
+
 ![](https://i.gifer.com/XOsX.gif)
